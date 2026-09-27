@@ -1,1 +1,1 @@
-# earnest-digita-sites
+# earnest-digital-sites
